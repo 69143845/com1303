@@ -1,3 +1,3 @@
 # com1303
 week1
-[link](https://github.com/69143845/com1303.git)
+[link](https://www.youtube.com/watch?v=shVKIMqYyhg&list=RDshVKIMqYyhg&start_radio=1)
